@@ -5,6 +5,7 @@
 + [Conquering Risk: Attacking Vegas and Wall Street - Elihu Feustel](https://www.amazon.com/Conquering-Risk-Attacking-Vegas-Street/dp/1450723004)
 + [Sharper: A Guide to Modern Sports Betting - True Pokerjoe](https://www.amazon.com/Sharper-Guide-Modern-Sports-Betting/dp/1520109326)
 + [Fixed Odds Sports Betting: Statistical Forecasting and Risk Management - Joseph Buchdahl](https://www.amazon.com/Fixed-Odds-Sports-Betting-Statistical/dp/1843440199)
++ [Logic Sports Betting - Ed Miller](https://www.amazon.com/Logic-Sports-Betting-Ed-Miller-ebook/dp/B07RG6H8C2)
 
 ## Books About Gambling/Gamblers
 
